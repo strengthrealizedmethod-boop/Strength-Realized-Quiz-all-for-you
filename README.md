@@ -1,0 +1,1 @@
+# Strength-Realized-Quiz-all-for-you
